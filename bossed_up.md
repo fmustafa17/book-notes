@@ -38,3 +38,60 @@
     - Putting yourself first is the strategic thing to do.
     - How we treat ourselves is the way how the world sees to treat us. 
     - Set a high bar on how to treat yourself.
+
+## *Chapter Two:* Cultivating Your Boss Identity
+
+- Our identity could be shaped through milestones (sweet sixteen or becoming a manager) and through outside factors (abusive relationship, micromanaging boss)
+- Microaggressions - brief and commonplace daily verbal, behaviorial or environmental indignities, intentional or not, that communicate hostile, derogatory or negative racial insults toward people of color.
+- Boss identity - retaining ownership and being the boss over your life.
+    - owning your power
+    - knowing your worth
+    - actively crafting your life and career
+- Practice makes perfect; carving your boss identity is an iterative process.
+    - Act
+    - See the response
+    - Adjust according to feedback 
+- Example: Calling a meeting to address a workplace concern.
+    - Do the action: Addressing a concern you deem important and want the team to buy in
+    - Feedback Phase: Coworkers can show up to the meeting and take it seriously OR not show up/care, might be met with resistance or people pushing back.
+- Your boss identity is built on your actions + the responses you get from the actions.
+- Take risks and win the respect of your colleagues.
+- Establish your boss identity for confidence and growth
+    - Find and create a safe identity workspace to experiment in.
+        - You're less likely to take risks in a toxic work environment or in an abusive relationship.
+    - Take purposeful action
+        - Assert yourself however you can.
+    - Gauge reaction
+        - Sit back and watch what happens, don't coerce the response.
+    - Internalize
+        - Subconsciously or not, the reaction sticks with you. Positive -> builds upon your sense as a leader. Negative -> decreases the likelihood of ever asserting yourself again
+        - Identify *why* the reaction happened
+        - When faced with failure after making a boss move, what external factors contributed that were not in your control?
+- When you practice leadership in one part of your life, it's easy to take that confidence with you to the workplace.
+- Imposter syndrome - fear of someone accusing you of being a fraud with no credientials, while having trouble internalizing your own successes.
+    - Internalizing your failures and then crediting external factors to your successes. (e.g. I got lucky)
+- How to beat back the imposter syndrome and get back to making boss moves:
+    - Phone a friend. Get someone else's input on a scenerio in which you worry you're not qualified to even try for.
+    - Rewrite the story. Identify the negative self-talk and write yourself a better story. Instead of pain and anxiety, work towards that calm confidence.
+    - Ask "Why not me?" Focus your energy on what makes you worthwhile and uniquely prepared to take the challenge on.
+- Stereotype threat - women spend energy worrying about proving negative stereotypes right. As a result, women often do underperform due to being reminded of the negative stereotype.
+    - [Stereotype Threat and Women's Math Performance](https://www.sciencedirect.com/science/article/abs/pii/S0022103198913737)
+- Coping Mechanism #1:
+    - Imagine yourself as risk taking and competitive before engaging in a task with potential stereotype threat. 
+    - Avoid viewing yourself with a gender lens (e.g "I'm the only woman in this meeting")
+    - Focus on your accomplishments, achievements and abilities. 
+- Coping Mechanism #2:
+    - Use humor to help ease anxiety and help you realize how ridiculous sexism is.
+- Big, Hairy, Audacious Goals (BHAGs) - having long term ambitions no matter how impractical, that motivate people.
+- Thinking/Writing exercise: on a piece of paper write out a journal entry that starts with "I'm so happy now that I have ..." and write about your dreams without any logical steps to achieve them. Get experimentational and playful. Take about 10 minutes.
+    - If you're unsure: 
+        - Get a peice of paper and play pretend. If you're not liking this vision, scrap the paper and try another scenerio. Change your entire vision around. 
+        - After getting all ideas down, check for commonalities. What theme stuck and figure out what lights you up.
+    - If you started planning right away:
+        - In a few more chapters, will start to plan out the course to success after steering in the right direction first.
+    - If you're totally intimidated:
+        - "Vision vertigo" - like standing on top of the mountain and looking down.
+        - Discomfort is a sign for growth. 
+        - Anxieties about the future are normal.
+        - "You can fail at what you don't want, so you might as well take a chance on doing what you love." - Jim Carrey
+- Your ambitions will get clearer over time as you continue to think about what it is that you want. Iterative process just like your boss identity.
